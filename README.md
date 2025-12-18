@@ -1,2 +1,2 @@
 Harry Potter
-Lord of the rings
+Lord of the Rings
